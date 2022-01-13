@@ -1,3 +1,15 @@
+# Secind
+Okay I was wrong. Writing Test cases is actually pretty fun once you know how to do it. I was talking from ignorance of not knowing what exactly it entailed. I guess being bored by things actually is that, just plain ignorance from your part on knowing what it means. Once youre aware, everything becomes interesting.
+
+I feel like i am on the right trajectory finally, after a long time. It feels i was just running around aimlessly like a headless chicken til I started working at my present company. I feel legitimately blessed now. The work is challenging and in the best way and I won't look back now. Everyone in my company is brilliant and it drives me to be better too, which is one of the best things one could go through.
+
+I tested positive for covid, got the message yesterday night/today morning saying so. Im not sure if it is a kind of placebo but since I have got the positive result, I feel a lot sicker. My body hurts and I feel tired as hell. I'm hoping this is the omicron variant as it seems to be kinder on the host.
+
+Thats it I guess.
+
+Bye,
+Shria
+Jan 13
 
 
 # Frist 
