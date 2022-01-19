@@ -3,7 +3,7 @@
 
 
 
-### Thrud -------------------------------------------------------------------------------------------------------------------------------------------
+### Thrud ------------------------------------------------------------------------------------------------------------------------------------------
 Now that I am done with test cases I have moved on *(kinda been promoted i hope heh)* to a new thing. Its fun, challenging, vague but understandable enough to be kinda motivating. I should be doing that and i'm writing this now. Same old. When i was getting onboarded on they weren't kidding, saying that it would be an extremely steep learning curve, legit exponential curve (lmao) in my learning. There is so much i need to learn to get even close to what and who i want to be... god i hope to stay motivated for however long it takes to learn everything. Im aiming for a **turing award**. not kidding.
 
 I have been happy these days, it feels like I dont have time to think about why I should be unhappy or time to find / create reasons to be unhappy. I guess this is why people who are constantly wokring seldom seem to have mental issues. they dont have time for those.
