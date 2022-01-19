@@ -1,4 +1,9 @@
-# Thrud
+# Blog Posts (New to Old)
+## Heaven or hell, accept me for who I am
+
+
+
+###### Thrud
 Now that I am done with test cases I have moved on (kinda been promoted i hope heh) to a new thing. Its fun, challenging, vague but understandable enough to be kinda motivating. I should be doing that and i'm writing this now. Same old. When i was getting onboarded on they weren't kidding, saying that it would be an extremely steep learning curve, legit exponential curve (lmao) in my learning. There is so much i need to learn to get even close to what and who i want to be... god i hope to stay motivated for however long it takes to learn everything. Im aiming for a turing award. not kidding.
 
 I have been happy these days, it feels like I dont have time to think about why I should be unhappy or time to find / create reasons to be unhappy. I guess this is why people who are constantly wokring seldom seem to have mental issues. they dont have time for those.
@@ -13,7 +18,9 @@ Jan 19 2022
 
 
 
-# Secind
+
+
+###### Secind
 Okay I was wrong. Writing Test cases is actually pretty fun once you know how to do it. I was talking from ignorance of not knowing what exactly it entailed. I guess being bored by things actually is that, just plain ignorance from your part on knowing what it means. Once youre aware, everything becomes interesting.
 
 I feel like i am on the right trajectory finally, after a long time. It feels i was just running around aimlessly like a headless chicken til I started working at my present company. I feel legitimately blessed now. The work is challenging and in the best way and I won't look back now. Everyone in my company is brilliant and it drives me to be better too, which is one of the best things one could go through.
@@ -27,7 +34,9 @@ Shria
 Jan 13 2022
 
 
-# Frist 
+
+
+###### Frist 
 
 Where did the obsession for commenting "first" on youtube channels come from? Is the competitiveness that stems from before our birth, where we competed with our siblings(?) to enter the egg? 
 
