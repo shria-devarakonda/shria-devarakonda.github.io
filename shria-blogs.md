@@ -1,3 +1,18 @@
+# Thrud
+Now that I am done with test cases I have moved on (kinda been promoted i hope heh) to a new thing. Its fun, challenging, vague but understandable enough to be kinda motivating. I should be doing that and i'm writing this now. Same old. When i was getting onboarded on they weren't kidding, saying that it would be an extremely steep learning curve, legit exponential curve (lmao) in my learning. There is so much i need to learn to get even close to what and who i want to be... god i hope to stay motivated for however long it takes to learn everything. Im aiming for a turing award. not kidding.
+
+I have been happy these days, it feels like I dont have time to think about why I should be unhappy or time to find / create reasons to be unhappy. I guess this is why people who are constantly wokring seldom seem to have mental issues. they dont have time for those.
+
+I have not been getting time to do much creatively , I'll have to manage my time a bit better to figure this out. I look forward to things. Ive also played some AOE for fun it is invigorating to say the least.
+
+Euphoria is intoxicating
+
+Bye,
+Shria
+Jan 19 2022
+
+
+
 # Secind
 Okay I was wrong. Writing Test cases is actually pretty fun once you know how to do it. I was talking from ignorance of not knowing what exactly it entailed. I guess being bored by things actually is that, just plain ignorance from your part on knowing what it means. Once youre aware, everything becomes interesting.
 
@@ -9,7 +24,7 @@ Thats it I guess.
 
 Bye,
 Shria
-Jan 13
+Jan 13 2022
 
 
 # Frist 
@@ -24,4 +39,4 @@ Im supposed to be writing unit tests for my project in my new job and I'm doing 
 
 Bye,
 Shria
-Jan 5
+Jan 5 2022
