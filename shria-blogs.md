@@ -4,10 +4,10 @@
 ### Forth ------------------------------------------------------------------------------------------------------------------------------------------
 idk why im writing this so closely next to the last post. I thought of a poem:
 
-aurea my pain you ameliorate
-i cant stand to see you in this state
-for thousand women before you cast their eyes
-on their goopy selves, and distastefully sigh
+- aurea my pain you ameliorate
+- i cant stand to see you in this state
+- for thousand women before you cast their eyes
+- on their goopy selves, and distastefully sigh
 
 poem is perception so percieve what you want.
 Im having trouble playing the guitar. its hurting my hand , due to not playing very frequently. what a difficult hobby to have, one that demands you to be in her constantly. clingy. painting isnt like that, i paint after an year and still manage to get the output I want but the guitar wants me to always have able fingers. however it is quite rewarding so i am fine, i will accept.
