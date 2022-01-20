@@ -1,5 +1,6 @@
 # Blog Posts (New to Old)
 > _Ad Astra Per Alia Porci_
+> if your code is easy to read youre intelligent
 
 ### Forth ------------------------------------------------------------------------------------------------------------------------------------------
 idk why im writing this so closely next to the last post. I thought of a poem:
