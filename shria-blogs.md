@@ -14,6 +14,7 @@ Im having trouble playing the guitar. its hurting my hand , due to not playing v
 I have been given a new task and its gonna be fun cuz i can do it while jamming to sum cool songies.
 
 thats it folx,
+
 bye,
 Shria
 Jan 20 2022
