@@ -1,5 +1,5 @@
 # MUSIC IS GOOD
-Please find my album/song recommendations over here. I'll update it regularly.
+Please find my album/song recommendations over here. I'll update it regularly. format: song/album - band name
 
 Babuland - Babuchan (Album)
 
@@ -71,11 +71,11 @@ little man and house and whole world - cardiacs (album)
 
 spratley japs - pony (album)
 
-Diamond eyes -inner wave (song)
+Diamond Eyes -inner wave (song)
 
-Heroin Song - jadu heart
+Heroin Song - jadu heart (song)
 
-
+Pierrot the clown - placebo (Song)
 
 
 
