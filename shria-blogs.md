@@ -1,7 +1,20 @@
 # Blog Posts (New to Old)
 > _Ad Astra Per Alia Porci_
 
-> if your code is easy to read youre intelligent
+> Why're you so surprised? Theres nothing to me
+
+### Fivth ------------------------------------------------------------------------------------------------------------------------------------------
+man im deploying things and bugfixing and building things left and right I feel like I am in heaven. my life has a purpose, and i dont care if I cant attain it, I dont care about that because atleast I have a purpose! So many people are just living life putting one leg in front of the other and calling it a day, I was that too, but now I feel I actually have things to be interested in and become great in. and to learn them is a delight. I cant wait to attain my goals and become the best there ever could be. Life is rewarding and you get what you want from all your heart and this is what ive wanted all my life. I just want to learn everything and know everything there is to know about all the fields I love so dearly and never stop and never look back. and be the best.
+Inner wave is so good, I have been listening to diamond eyes for the past few days again and its such a good song it always makes me feel right.
+I will make music too, that makes people feel right, eventually.
+
+Courting death.
+
+Bye,
+Shria
+21 Jan 2022
+
+
 
 ### Forth ------------------------------------------------------------------------------------------------------------------------------------------
 idk why im writing this so closely next to the last post. I thought of a poem:
