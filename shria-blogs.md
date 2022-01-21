@@ -4,8 +4,14 @@
 > Why're you so surprised? Theres nothing to me
 
 ### Fivth ------------------------------------------------------------------------------------------------------------------------------------------
-man im deploying things and bugfixing and building things left and right I feel like I am in heaven. my life has a purpose, and i dont care if I cant attain it, I dont care about that because atleast I have a purpose! So many people are just living life putting one leg in front of the other and calling it a day, I was that too, but now I feel I actually have things to be interested in and become great in. and to learn them is a delight. I cant wait to attain my goals and become the best there ever could be. Life is rewarding and you get what you want from all your heart and this is what ive wanted all my life. I just want to learn everything and know everything there is to know about all the fields I love so dearly and never stop and never look back. and be the best.
-Inner wave is so good, I have been listening to diamond eyes for the past few days again and its such a good song it always makes me feel right.
+Man, I'm deploying things and bugfixing and building things left and right I feel like I am in heaven. My life has a purpose, and I dont care if I cant attain it, atleast I have a purpose! So many people are just living life putting one leg in front of the other and calling it a day. I was that too, but now I feel I actually have things to be interested in and become great in. And to learn them is a delight. 
+
+I cant wait to attain my goals and become the best there ever could be. Life is rewarding and you get what you want and this is what I've wanted all my life. I just want to learn everything and know everything there is to know about all the fields I love so dearly and never stop and never look back. And be the best.
+
+I think I get why AOE is so good. Everyone wants to be god.
+
+Inner wave is perfect, I have been listening to diamond eyes for the past few days again and its such a good song it always makes me feel right.
+
 I will make music too, that makes people feel right, eventually.
 
 Courting death.
@@ -17,20 +23,24 @@ Shria
 
 
 ### Forth ------------------------------------------------------------------------------------------------------------------------------------------
-idk why im writing this so closely next to the last post. I thought of a poem:
+I thought of a poem:
 
 - aurea my pain you ameliorate
 - i cant stand to see you in this state
 - for thousand women before you cast their eyes
 - on their goopy selves, and distastefully sigh
 
-poem is perception so percieve what you want.
-Im having trouble playing the guitar. its hurting my hand , due to not playing very frequently. what a difficult hobby to have, one that demands you to be in her constantly. clingy. painting isnt like that, i paint after an year and still manage to get the output I want but the guitar wants me to always have able fingers. however it is quite rewarding so i am fine, i will accept.
+Poem is perception so percieve what you want.
+
+I'm having trouble playing the guitar. It's hurting my hand, due to not playing very frequently. What a difficult hobby to have, one that demands you to be in her constantly. Clingy.
+
+Painting isn't like that, I paint after an year and still manage to get the output I want, but the guitar wants me to always have able fingers. However it is quite rewarding, so I accept.
+
 I have been given a new task and its gonna be fun cuz i can do it while jamming to sum cool songies.
 
-thats it folx,
+Thats it folx,
 
-bye,
+Bye,
 Shria
 Jan 20 2022
 
