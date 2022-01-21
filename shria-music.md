@@ -79,3 +79,4 @@ Pierrot the clown - placebo (Song)
 
 Knights of cydonia - Muse(song)
 
+Fidlar - FIDLAR (Album)
