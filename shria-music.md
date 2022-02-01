@@ -79,4 +79,8 @@ Pierrot the clown - placebo (Song)
 
 Knights of cydonia - Muse(song)
 
-Fidlar - FIDLAR (Album)
+Yours - King Gizzard and the Lizard Wizard (Song)
+
+Shanghai - King Gizzard and the Lizard Wizard (Song) extra marks for extra good song 
+
+
