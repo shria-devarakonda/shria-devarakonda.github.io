@@ -3,6 +3,19 @@
 
 > Why're you so surprised? Theres nothing to me
 
+### sickt ------------------------------------------------------------------------------------------------------------------------------------------
+Dude development is tough as tits im dying everyday but ive never felt more alive than now, im living every decond for absorbing as much as i can becuase i want to and need to get good like super fast, and i will man nothing can stop me. i deleted instagram cuz that shit distracting and now all i have time for is learning development. this is sick as hell and I love it so much , i just wanna get like really good at everything soon though. i hope i will.
+
+parting poem:
+- entered my life like a ninja star
+- im bleeding red over everything I see
+- waited all my life for you, from afar
+- now here, youll be the death of me
+
+Bye,
+Shria
+1 Feb 2022
+
 ### Fivth ------------------------------------------------------------------------------------------------------------------------------------------
 Man, I'm deploying things and bugfixing and building things left and right I feel like I am in heaven. My life has a purpose, and I dont care if I cant attain it, atleast I have a purpose! So many people are just living life putting one leg in front of the other and calling it a day. I was that too, but now I feel I actually have things to be interested in and become great in. And to learn them is a delight. 
 
