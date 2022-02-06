@@ -4,13 +4,13 @@
 > Why're you so surprised? Theres nothing to me
 
 ### sickt ------------------------------------------------------------------------------------------------------------------------------------------
-Dude development is tough as tits im dying everyday but ive never felt more alive than now, im living every decond for absorbing as much as i can becuase i want to and need to get good like super fast, and i will man nothing can stop me. i deleted instagram cuz that shit distracting and now all i have time for is learning development. this is sick as hell and I love it so much , i just wanna get like really good at everything soon though. i hope i will.
+Dude development is tough as tits im dying everyday but ive never felt more alive.
 
 parting poem:
 - entered my life like a ninja star
 - im bleeding red over everything I see
 - waited all my life for you, from afar
-- now here, youll be the death of me
+- and Here you are! You'll be the death of me!
 
 Bye,
 Shria
