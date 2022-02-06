@@ -2,9 +2,22 @@
 > _Ad Astra Per Alia Porci_
 
 > Why're you so surprised? Theres nothing to me
+### sventh ------------------------------------------------------------------------------------------------------------------------------------------
+I wrote a script thing for getting info on serial killers. It was fun to write. I'm honestly not super fluent in OOPS in python so I figured it would be best to practice that stuff out with a topic of interest for me. While doing that, I had a strange neccisity to listen to Cigarettes after Sex. I used to listen to them maybe 3 to 4 years back and haven't listened to them recently. Hence, I can't explain why it happened. Is there something underlying in CAS' music that reminds me of serial killers? Not entirely unimpossible. They do have that song John Wayne, which in my opinion they might have written about John Wayne Gacy, and not the actor. Oh well.
+I also had a a sudden memory of me trying to figure out an easy way to compute the sqaures of numbers. I remember it being a mammoth task to multiply a number with 2 or more digits with itself, and so I was trying to figure out a way to do it with addition of digits, akin to vedic math now that I think of it. I'll not surprise anyone by saying that I failed in figuring out a good enough way, and now we all walk around with calculators in our hands everywhere anyway. However that experience is always going to be stuck in my head as a really fun experience where I might have felt like a proper mathematician, wholly engrossed in trying  to find a way to make my life easier. Fuck multiplying big numbers manually. If i have the energy to, I'll elaborate on some of the interesting observations I did end up coming up with which weren't entirely useful for my purposes but were fun to discover.
+
+poem:
+- apply you over my face, hair
+- my arms tire from the process
+- I can't stop howerver, for
+- I fear to cause a mess
+
+Bye,
+Shria
+7 Feb 2022
 
 ### sickt ------------------------------------------------------------------------------------------------------------------------------------------
-Dude development is tough as tits im dying everyday but ive never felt more alive.
+Dude development is tough as tits I'm dying everyday but I've never felt more alive.
 
 parting poem:
 - entered my life like a ninja star
