@@ -3,6 +3,15 @@
 
 > Why're you so surprised? Theres nothing to me
 
+### eithg ------------------------------------------------------------------------------------------------------------------------------------------
+It's been 2 months and its still pretty tough. I'm hoping it will get better and I will get better. After all, this is what I want to do for the rest of my life. Man is life amazing. Everyhting is out there, I've just got to grab it. Fear of failure is quite possibly the most stupid phenomenon to exixt in this world.
+
+thats it for today.
+
+
+Bye,
+Shria
+3 March 2022
 
 ### sventh ------------------------------------------------------------------------------------------------------------------------------------------
 I wrote a script thing for getting info on serial killers. It was fun to write. I'm honestly not super fluent in OOPS in python so I figured it would be best to practice that stuff out with a topic of interest for me. While doing that, I had a strange neccisity to listen to Cigarettes after Sex. I used to listen to them maybe 3 to 4 years back and haven't listened to them recently. Hence, I can't explain why it happened. Is there something underlying in CAS' music that reminds me of serial killers? Not entirely unimpossible. They do have that song John Wayne, which in my opinion they might have written about John Wayne Gacy, and not the actor. Oh well.
